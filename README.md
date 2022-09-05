@@ -1,3 +1,3 @@
 # GitTest
 
--Teja Bhavani Shankar Parachoori says that this community is really amazing
+-Teja Bhavani Shankar Parachoori says that this community is really amazing!
